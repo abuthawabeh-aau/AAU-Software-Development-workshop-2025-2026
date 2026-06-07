@@ -1,0 +1,5 @@
+1- GitHub video recording by Dr. Ala Abuthawabeh  & Eng. Weam Telfah
+https://aauedujoco-my.sharepoint.com/:v:/g/personal/a_abuthawabeh_aau_edu_jo/IQD3HCJTPx_SQqkHqDkGKc77AaZN9_kvif6imYDwrYyg8-Y?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=zpxPkm
+
+2-Codex video recording by Dr. Mutasim al-Smadi
+https://aauedujoco-my.sharepoint.com/:v:/g/personal/m_alsmadi_aau_edu_jo/IQDjzaPVYEaGTL4eO-pdTvs8AZaNcHspQNQ2EiEZeA-Lxh4?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=sV0NBe
